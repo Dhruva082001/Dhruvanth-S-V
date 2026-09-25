@@ -95,7 +95,7 @@ Sri Siddhartha Institute of Technology
 ## 🤝 Let's Connect
 
 📧 **Email:** dhruvanthsv200108@gmail.com  
-💼 **LinkedIn:** [Dhruvanth S V](https://linkedin.com/in/dhruvanth-s)
+💼 **LinkedIn:** [Dhruvanth S V](https://www.linkedin.com/in/dhruvanth-s-v/)
 
 ---
 
